@@ -1,4 +1,4 @@
-Résume Annelien Haeghebaert
+Résumé Annelien Haeghebaert
 ===============
 
 Biografie
