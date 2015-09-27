@@ -59,3 +59,5 @@ Contactinformatie
 
 * **email :** annelien.haeghebaert@student.arteveldehs.be
 * **twitter :** https://www.twitter.com/annelienn
+
+ ![alt text](http://i61.tinypic.com/25ja8pk.png) 
